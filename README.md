@@ -1,6 +1,6 @@
 Apoio Psicossocial e Resiliência Urbana
 
-• Nome do Projeto: Geladeira do Livro e Af
+• Nome do Projeto: Geladeira do Livro e Afeto
 
 • Objetivo: Estimular a leitura, a saúde mental e o apoio mútuo em 
 comunidades de alta vulnerabilidade social.
